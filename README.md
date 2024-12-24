@@ -1,0 +1,1 @@
+# aapanel---Slovak-lang
